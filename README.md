@@ -1,2 +1,4 @@
 # dropinclass1
-saving my 3D profile
+Saving my 3D Profile
+Erected in the summer of 1890 and then re-modeled in 1895 by Edward R. Swain, Old Summit School dates back farther than any other school in Mill Valley. It was here the first pupils of Mill Valley became educated. What was then a one-story, one-room shanty, grew in the preceding years into a fine two-story school on Summit Avenue. By 1904 the attendance was the third largest in the country. 
+	Half a century later (1940), the building was razed, but the public school system’s presence in Mill Valley never faltered. At the time there were four school buildings with an attendance of approximately 700 and an estimated valuation of $255,000 (equal to  $4,606,119 in 2018.) Old Summit School was razed as Mill Valley concluded the celebration of fifty years as a community. 
